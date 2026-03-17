@@ -1,0 +1,3 @@
+- Monday: Coffee quote post
+- Wednesday: Reels (how coffee is made)
+- Friday: Meme about Monday mood
